@@ -1,5 +1,11 @@
 # 💫 About Me:
-Let's make it run 🏃
+I am an enthusiastic and committed web
+developer looking for opportunities to drive
+the success of an organization.
+I aim to apply my expertise while
+continually enhancing my skills and
+staying adaptable in a rapidly evolving
+industry
 
 
 ## 🌐 Socials:
